@@ -1,7 +1,7 @@
-# 琴之家
+## Cute Jimmy&Bella
 
 ## Connect Us
 
 ## Phone:\+8615584958345
 
-## Email:qinzhijia@qzj.com
+## Email:jimmybella@jb.com
